@@ -1,1 +1,1 @@
-21 yaşındayım, Endsütri Mühendisliği 3. sınıf öğrencisiyim.
+21 yaşındayım, Endsütri Mühendisliği 3. sınıf öğrencisiyim. 
